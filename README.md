@@ -1,0 +1,2 @@
+# 50min
+my inspiration
